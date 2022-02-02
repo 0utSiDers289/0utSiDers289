@@ -8,5 +8,3 @@
 
 • 📫 How to reach me 
 outsiderscapital@xploresec.id
-
-                   </outsiders>
