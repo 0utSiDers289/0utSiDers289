@@ -1,4 +1,4 @@
-• 👋 Hi, I’m @0utSiDers289
+• 👋 Hi, I’m @0utSiDers
 
 • 👀 I’m Ordinary People
 
